@@ -1,3 +1,5 @@
 # Python
 
-Today onward i learn python 
+My self Raja Sherina .
+
+Today onward i learn python .
