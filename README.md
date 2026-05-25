@@ -19,4 +19,4 @@ My goal is to become a good software developer in the future.
 
 
 
-7guuuuuuuuuu
+7gu
