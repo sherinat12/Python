@@ -17,4 +17,4 @@ My goal is to become a good software developer in the future.
 
 
 
-fjakgsfjkahskjf hfjbckjas rajasherina sjdfhsj;laf;fh d
+fjakgsfjkahskjf hfjbckjas rajasherina sjdfhs
