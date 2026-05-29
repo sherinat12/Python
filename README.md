@@ -12,5 +12,5 @@ I will practice daily and learn new concepts step by step.
 
 My goal is to become a good software developer in the future
 
-asdgaj iegriuqegr shflsdhoi3 iugiuhf yiuwehwe kjhkjsdhf
+asdgaj iegriuqegr shflsdhoi3 iugiuhf yiuwehwe
 
